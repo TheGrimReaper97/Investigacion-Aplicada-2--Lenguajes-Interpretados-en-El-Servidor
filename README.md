@@ -21,4 +21,4 @@ Katherine Lissette Sánchez Villa SV161855
 
 
 Infografia: 
-https://www.canva.com/design/DAE_wWUOYAU/g3KNIq847LUIcAmvXFqH5Q/view?utm_content=DAE_wWUOYAU&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+https://drive.google.com/file/d/1rq4L6ipCQflKEYU9zRAuf7N5m4-0J_fS/view?usp=sharing
